@@ -1,1 +1,0 @@
-# taller_technical_test
